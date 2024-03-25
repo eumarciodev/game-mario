@@ -1,0 +1,1 @@
+<img src="https://media.discordapp.net/attachments/1163162302749618196/1221944985063264286/image.png?ex=66146bf3&is=6601f6f3&hm=5252ae86ba5bc2e2ba90680764fa28776237ff5b5d996271d9194896678159ff&=&format=webp&quality=lossless"/>
